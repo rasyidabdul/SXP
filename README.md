@@ -1,0 +1,2 @@
+# SXP
+TRUSTWALLET
